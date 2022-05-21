@@ -1,1 +1,0 @@
-# Bagus-Aryo-Prasetyo
